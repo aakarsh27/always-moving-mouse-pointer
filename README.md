@@ -5,4 +5,4 @@ this way you can stay active withhout actually staying active lmao
 
 remember when you went for a break and left your computer hanging
 and it slept which showed your inactive!
-well not anymore
+ well not anymore
