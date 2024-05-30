@@ -3,4 +3,4 @@
 this program turns the mouse into always moving so that your computer screen never falls to auto-sleep
 this way you can stay active withhout actually staying active lmao
 
-remember when you went for a break and left your
+remember when you went for a break and left your computer hanging
